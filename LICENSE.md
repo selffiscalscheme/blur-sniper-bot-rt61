@@ -1,4 +1,4 @@
-# 
+# new NFT Rarity Sniper for blur sniper bot | floor-sweeping & volume-analysis offers the most advanced blur sniper bot, with floor-sweeping and volume-analysis. Ideal for
 
 
 
